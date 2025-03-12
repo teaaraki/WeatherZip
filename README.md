@@ -2,4 +2,4 @@
 
 Tea Araki
 Kailua kona, HI
-My favorite weather in a place I traveled was Denmark, was weather was cool and breezy.
+My favorite weather for a city is low 60's. Seattle in the Fall for example
