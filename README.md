@@ -2,4 +2,4 @@
 
 Tea Araki
 Kailua kona, HI
-My favorite weather in a place I traveled was Denmark, was weather was cool and breezy.
+My favorite weather for a city I would like to travel too is Norway in the Summer. I like cool weather, but not freezing. 
